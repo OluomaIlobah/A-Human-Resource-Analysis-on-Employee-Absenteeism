@@ -9,4 +9,4 @@ With increased rate of absenteeism experienced amongst its staff members affecti
 **Project Overview:**
 The organization embodies about thirty-four(34) members of staff working across four(4) seasons of the year, and within the age groups as follows: Adults, Middle-aged and Elderly. Consequently, the reasons for absenteeism were: Family related, Medical reasons, Incomplete submission and Unjustified leave.
 
-View full report here: https://medium.com/@oluomaIlobah/the-impact-of-employee-absenteeism-on-organizations-productivity-c9f0947c7922
+**View full report here:** https://medium.com/@oluomaIlobah/the-impact-of-employee-absenteeism-on-organizations-productivity-c9f0947c7922
